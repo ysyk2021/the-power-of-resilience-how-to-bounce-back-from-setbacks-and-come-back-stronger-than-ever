@@ -8,5 +8,4 @@ Throughout this book, you'll discover techniques for cultivating resilience in y
 
 Whether you're facing a major life challenge or simply seeking to improve your ability to cope with everyday stresses, "The Power of Resilience" offers practical guidance and inspiration for developing the strength and resilience to overcome obstacles and thrive in life. So, let's get started on the journey towards greater resilience together!
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
