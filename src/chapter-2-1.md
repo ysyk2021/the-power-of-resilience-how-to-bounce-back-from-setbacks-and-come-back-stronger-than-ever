@@ -1,4 +1,4 @@
-Chapter: Techniques for Developing Resilience through Mindset and Attitude
+Techniques for Developing Resilience through Mindset and Attitude
 ==========================================================================
 
 In this chapter, we will explore the significance of mindset and attitude in developing resilience. By understanding and implementing techniques that promote a resilient mindset and positive attitude, individuals can effectively bounce back from setbacks, overcome challenges, and emerge stronger than ever before.

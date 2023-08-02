@@ -1,4 +1,4 @@
-Chapter: Strategies for Communicating Effectively and Resolving Conflict
+Strategies for Communicating Effectively and Resolving Conflict
 ========================================================================
 
 In this chapter, we will delve into the importance of effective communication and conflict resolution in building resilience. Setbacks and challenges are inevitable, but how we communicate and resolve conflicts can greatly impact our ability to bounce back and come back stronger than ever. By understanding and implementing strategies for effective communication and conflict resolution, individuals can navigate difficult situations with resilience and maintain positive relationships.
