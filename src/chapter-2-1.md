@@ -1,4 +1,4 @@
-Chapter: Techniques for Developing Resilience through Mindset and Attitude
+Techniques for Developing Resilience through Mindset and Attitude
 ==========================================================================
 
 Introduction
