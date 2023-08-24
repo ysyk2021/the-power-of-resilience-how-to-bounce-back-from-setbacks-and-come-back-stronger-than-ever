@@ -1,5 +1,3 @@
-Chapter 3: Strengthening Emotional Intelligence
-===============================================
 
 Emotional intelligence is a critical component of resilience. By increasing our emotional intelligence and self-awareness, we can better recognize and manage our emotions in challenging situations, build empathy and connection with others, and bounce back from setbacks stronger than ever.
 

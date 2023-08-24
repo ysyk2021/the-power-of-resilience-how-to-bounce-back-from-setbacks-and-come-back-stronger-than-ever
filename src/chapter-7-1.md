@@ -1,5 +1,3 @@
-Techniques for Prioritizing Self-care and Wellness in Daily Life
-===========================================================================
 
 In this chapter, we will explore various techniques that can help you prioritize self-care and wellness in your daily life. By incorporating these strategies into your routine, you can bounce back from setbacks and come back stronger than ever.
 

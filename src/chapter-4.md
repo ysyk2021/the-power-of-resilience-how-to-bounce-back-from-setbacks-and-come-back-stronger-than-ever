@@ -1,5 +1,3 @@
-Chapter 4: Cultivating a Positive Mindset
-=========================================
 
 In this chapter, we will explore how individuals can cultivate a positive mindset to increase resilience. A positive mindset can lead to greater emotional well-being, physical health, and overall resilience.
 

@@ -1,4 +1,3 @@
-# Conclusion
 
 In this final chapter, we will summarize the key points presented in the book, provide strategies for developing an action plan for building resilience and bouncing back from setbacks, and offer encouragement for continual growth and development in resilience skills.
 

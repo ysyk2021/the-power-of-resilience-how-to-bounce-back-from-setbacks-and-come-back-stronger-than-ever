@@ -1,5 +1,3 @@
-Chapter 7: Practicing Self-care and Wellness
-============================================
 
 In this chapter, we will explore the importance of self-care and wellness in building resilience and sustainability. We will discuss techniques for prioritizing self-care and wellness in daily life, strategies for building healthy habits and routines for physical and mental health, and the benefits of practicing self-care and wellness.
 

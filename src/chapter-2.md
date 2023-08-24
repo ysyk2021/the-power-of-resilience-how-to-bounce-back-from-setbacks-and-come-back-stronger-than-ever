@@ -1,5 +1,3 @@
-Chapter 2: Developing Resilience Skills
-=======================================
 
 In this chapter, we will explore techniques and strategies for developing resilience skills. Resilience is the ability to adapt and bounce back from adversity and challenges. Developing resilience skills can help individuals better cope with stress and overcome setbacks.
 

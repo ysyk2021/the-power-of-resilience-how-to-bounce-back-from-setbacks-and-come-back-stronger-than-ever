@@ -1,5 +1,3 @@
-Strategies for Reframing Negative Thoughts and Fostering Optimism
-============================================================================================================
 
 In this chapter, we will explore strategies for cultivating a positive mindset by reframing negative thoughts and fostering optimism. By learning to shift our mindset towards positivity, we can build resilience and bounce back from setbacks with greater ease.
 

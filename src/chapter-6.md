@@ -1,5 +1,3 @@
-Chapter 6: Building Strong Relationships
-========================================
 
 Building strong relationships is an essential component of resilience. By developing empathy and compassion, communicating effectively, and resolving conflict, we can build stronger relationships that provide us with the support and encouragement we need to bounce back from setbacks.
 

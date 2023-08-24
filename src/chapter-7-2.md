@@ -1,5 +1,3 @@
-Strategies for Building Healthy Habits and Routines for Physical and Mental Health
-=============================================================================================
 
 In this chapter, we will explore various strategies that can help you build healthy habits and routines to enhance your physical and mental well-being. By incorporating these practices into your daily life, you can cultivate resilience and bounce back stronger from setbacks.
 
