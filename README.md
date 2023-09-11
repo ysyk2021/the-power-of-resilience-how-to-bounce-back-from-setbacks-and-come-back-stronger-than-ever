@@ -1,3 +1,6 @@
+# The Power of Resilience: How to Bounce Back from Setbacks and Come Back Stronger Than Ever
+
+Book Link: [https://zhengpublishing.com/the-power-of-resilience-how-to-bounce-back-from-setbacks-and-come-back-stronger-than-ever/](https://zhengpublishing.com/the-power-of-resilience-how-to-bounce-back-from-setbacks-and-come-back-stronger-than-ever/)
 
 The road of life is often filled with unexpected twists and turns, and setbacks can happen to anyone. However, it's not the setbacks themselves that define us, but how we respond to them. Resilience is the ability to bounce back from setbacks and come back stronger than ever. It's a skill that can be learned and developed by anyone.
 
